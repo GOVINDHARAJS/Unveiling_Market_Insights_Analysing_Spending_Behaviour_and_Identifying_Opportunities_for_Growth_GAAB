@@ -1,0 +1,2 @@
+# Unveiling_Market_Insights_Analysing_Spending_Behaviour_and_Identifying_Opportunities_for_Growth_GAAB
+Wholesaling or distributing is the sale of goods to retailer to industrial, commercial, institutional or other professional businessman to other wholesalers (wholesale businesses) and related subordinated services. Wholesaling is buying goods in bulk quantity, usually directly from the manufacturer or source, at a discounted rate.
